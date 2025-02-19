@@ -1,4 +1,4 @@
-]
+
 ## 👋 Hey there, I'm Djamal!
 
 🛩️ **Aviation enthusiast**, marathon runner, and global traveler—so if you want to chat about cultural leadership practices or the best running trails around the world, I’m all ears! I love discovering new places, indulging in diverse cuisines, and geeking out over aviation technology. When I'm not on the move, you can find me enjoying a good book or indulging in some good tech jokes.
